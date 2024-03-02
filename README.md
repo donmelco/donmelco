@@ -8,6 +8,6 @@ Along my journey, I'm keen to gather wisdom from seasoned tech navigators. If yo
 
 My Skill: Spreading positivity and staying joyful, no matter the debugging challenge! 😄
 
-📬 Curious about my levitating photography? Or have some coding tales to share? Find me as Donmelco on Twitter and Instagram. Let's connect and merge our narratives into something spectacular!
+📬 Curious about my levitating photography? Or have some coding tales to share? Find me as melcode on Twitter and Instagram. Let's connect and merge our narratives into something spectacular!
 
 ![wf43ym](https://github.com/donmelco/donmelco/assets/158526792/a26f4f46-6a05-40d0-9fca-de8db9995b5e)
