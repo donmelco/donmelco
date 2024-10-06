@@ -1,4 +1,4 @@
-👊Hey there! I'm Melqui, but you can call me Melco. I'm soaking up the tech vibes in Trois-Rivières, Québec. 🍁 I'm in my first year of computer science at the Université du Québec à Trois-Rivières, where I'm mapping out the binary worlds of Java and C language. 💻🎓
+👊Hey there! I'm Melqui, but you can call me Melco. I'm soaking up the tech vibes in Trois-Rivières, Québec. 🍁 I'm in my first year of computer science at the Université de Laval, where I'm mapping out the binary worlds of Python and other languages. 💻🎓
 
 📸 Beyond the brackets and semicolons, I'm a professional photographer with a flair for making the mundane float - literally. 🎈 Through my lens, I capture a bit of everyday magic and a whole lot of gravity-defying moments. 🕶️
 
